@@ -1,0 +1,2 @@
+# ramadani
+Hidu harus berjuang
